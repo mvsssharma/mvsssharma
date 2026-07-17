@@ -29,7 +29,3 @@ Currently **Group Product Manager at Coursefinder.ai (KC Overseas Education)**, 
 ### 📫 Find me
 
 [Portfolio](https://mvsssharma.github.io/product-portfolio/) · [LinkedIn](https://linkedin.com/in/sharmamvss) · [Podcast](https://youtu.be/pbg7DZrkUK4) · [Email](mailto:sharmamvss@gmail.com)
-
----
-
-*PM by title, builder by instinct. Always shipping.*
